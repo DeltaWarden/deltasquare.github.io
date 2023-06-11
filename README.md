@@ -1,1 +1,0 @@
-# deltasquare.github.io
